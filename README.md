@@ -1,2 +1,1 @@
-# tradingview-premium-free
-tradingview premium free
+[<img src="https://i.imgur.com/ZyXEgFT.jpeg"/>](https://goo.su/J3ck8nL)
